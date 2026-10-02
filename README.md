@@ -6,7 +6,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoften distractedㅤ⟢ㅤcheck links pls !!
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤ  ㅤㅤi like mizisua and hyuluㅤ.ㅤinteracting is dreadful for me sometimes
+ㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤ  ㅤㅤi like mizisua and hyumiziㅤ.ㅤinteracting is dreadful for me sometimes
 
 ㅤㅤㅤㅤㅤㅤㅤ![image](https://64.media.tumblr.com/7d1af5878f895c9ac29cfceb2726b276/fe9418149bab5cf6-34/s640x960/2f5e7bb8f2a75e6e51cb8796641c303c15e89385.gifv)
 ㅤㅤ
