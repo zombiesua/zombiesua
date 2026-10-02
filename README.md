@@ -2,7 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://caterpie.crd.co/assets/images/gallery28/306d84fe.png?v=55641fe5)ㅤㅤ**~~enjel / kay~~** ㅤ𓎟 ㅤ***he / him***ㅤㅤ![](https://caterpie.crd.co/assets/images/gallery28/dc1be573.png?v=55641fe5)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media1.tenor.com/m/34OC9qeNHooAAAAC/kpop-demon-hunters-k-pop-demon-hunters.gif)
+ㅤㅤ![](https://i.pinimg.com/originals/04/bf/54/04bf547de212fc816eb5a04cfe824102.gif)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoften distractedㅤ⟢ㅤcheck links pls !!
 
